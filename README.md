@@ -4,7 +4,7 @@
 
 ## I'm a .... Student?
 
-- 💬 Ask me about ..... Java.
+- 💬 Ask me about ..... Java👀.
 - 📫 Reach me at danshiju07@gmail.com
 
 ### Connect with me:
